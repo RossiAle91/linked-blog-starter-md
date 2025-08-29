@@ -1,0 +1,2 @@
+È un tiefiling figlio di Bel e dato come pegno all'entità che rappresenta la [[Paura]] da cui sta attingendo per lanciare i suoi incantesimi. Cerca sempre di guadagnare dell'oro ma lo usa per finanziare un'orfanotrofio di [[Portovispo]]. Non ha mai voluto usare il suo potenziale magico fino a poco tempo fa, nella battaglia che ha messo in moto tutti gli eventi.
+Ha fatto anche un lavoretto per [[Magister George]] senza saperlo, aiutando [[Leonard]] e altri due scagnozi a portare delle armi e armature in un punto designato per la recupero da parte dei goblin.

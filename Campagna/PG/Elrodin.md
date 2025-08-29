@@ -1,0 +1,1 @@
+Mezzelfo con padre umano e madre elfica, ranger abile con l'arco e predilige spacca corta e daga nel combattimento corpo a corpo. Utilizza pozioni che modificano le statistiche e veleni da usare contro i suoi obiettivi. Ha come famiglio Aulin un Barbagianni

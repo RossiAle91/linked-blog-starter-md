@@ -1,0 +1,2 @@
+La stella al centro del sistema solare si chiama Tolusta. Il quarto pianeta dove si svolge principalmente l'avventura e' [[Tolusta]]. Ci sono in totale 6 pianeti, 3 senza umanoidi e umanoidi.
+In ordine Boki, Riotri, Gria, [[Tolusta]], Olimie, Dervio. Di questi Boki, Riotri e Dervio senza umanoidi perché o troppo vicini o troppo distanti da Tolusta. Gria oltre a essere più caldo ha anche una Trama più fitta che rende gli incantesimi più difficili da lanciare ma anche più forti, al contrario Olimie

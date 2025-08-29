@@ -1,0 +1,1 @@
+Sicario di [[Magister George]], non segue la linea di fedeltà ma quella dei soldi. Non sono lavori difficili quelli che gli affida il suo capo ma sono pagati molto bene. Non è alla conoscenza degli accordi con i goblin e continuerà a seguire George anche se lo scoprisse.

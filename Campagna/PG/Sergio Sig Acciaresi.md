@@ -1,0 +1,1 @@
+Artefice umano che arriva da altro continente, sta cercando vendetta

@@ -1,0 +1,9 @@
+[[Tolusta]] è il quarto pianeta che ruota attorno a [[Selario]] ed oltre ad avere un buon rapporto per quanto riguarda tra temperatura massima e minima ha anche un buon rapporto di Trama per il corretto controllo della magia.
+Il pianeta comprende 5 grossi continenti divisi tra loro degli oceani e catene montuose. Esistono oltre che al polo N/S anche un magnetismo E/W, in corrispondenza dei 4 poli ci sono 4 Leyline maggiori N - acqua, S - Aria, E - Fuoco, W - Terra. Che oltre ad essere forti emozioni degli elementi corrispettivi posso essere anche portali verso i piani elementali.
+L'inizio dell'avventura si svolgerà nel piccolo continente di [[Yure]], equamente distante da tutti e 4 i poli che comporta un livello generare basso.
+In questo continente non ci sono alberi abbastanza resistenti per fare barche in grado di affrontare l'oceano, le imbarcazioni sono per lo più fluviali per le rotte commerciali o per il piccolo mare interno.
+Gli avventurieri saranno all'inizio nella città di [[Portovispo]]
+Le problematiche principali sulle quali li avventurieri possono focalizzarsi sono:
+- Hobgoblin [[Mardu]] che sta unendo vari clan di goblin sotto il comando dei suoi 6 fedelissimi seguendo il culto del Nuovo Sole
+- Beholder [[Axiovo]] ha nascosto in questo luogo un potente oggetto magico per evitare che finisse nella mani di un suo nemico
+- [[Magister George]] , mercante malvagio con una incredibile avarizia, sempre alla ricerca di nuovi scambi dove lui possa trarne vantaggi economici e sociali, ha stretto un patto con [[Mardu]] per attaccare la città di Portovispo e destituire il signore locale per poter mettere [[Magister George]] a capo.

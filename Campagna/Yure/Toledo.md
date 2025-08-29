@@ -1,0 +1,3 @@
+Città che si trova a ovest del mar Livio ed era un importate centro di studio della magia prima che [[Axiovo]] decidesse di impiantare il [[cristallo di trama]]. Della grande accademia sono rimasti in pochi a portare avanti gli studio e uno tra questi è stato anche assassinato ma risulta essere partito per una spedizione.
+In questa città viene eletto un sindaco ogni 5 anni , attualmente è [[Antoine Falco]] e la giustizia viene controllata dallo sceriffo [[Giangiacomo Politosi]]
+A capo del centro di ricerca c'è l'arcimago Quasimodo Vistivo.
