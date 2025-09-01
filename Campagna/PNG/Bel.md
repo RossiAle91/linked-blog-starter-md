@@ -1,0 +1,1 @@
+Diavolo che sta cercando di usurpare al trono di Lazariel, ha venduto il suo primogenito [[Sikhar]] alla Paura per ottenere poteri da Warlock ed è intenzionato a liberare Tiamat per incolpare Lazariel e prenderne il posto

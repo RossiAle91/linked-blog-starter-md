@@ -1,2 +1,6 @@
 È un tiefiling figlio di Bel e dato come pegno all'entità che rappresenta la [[Paura]] da cui sta attingendo per lanciare i suoi incantesimi. Cerca sempre di guadagnare dell'oro ma lo usa per finanziare un'orfanotrofio di [[Portovispo]]. Non ha mai voluto usare il suo potenziale magico fino a poco tempo fa, nella battaglia che ha messo in moto tutti gli eventi.
 Ha fatto anche un lavoretto per [[Magister George]] senza saperlo, aiutando [[Leonard]] e altri due scagnozi a portare delle armi e armature in un punto designato per la recupero da parte dei goblin.
+
+"La sua oscurità da cui prende poteri è la paura ancestrale uno delle quattro reazioni che la maggior parte delle creatura ha di fronte al pericolo, solitamente concede poteri tramite patti da warlock o con riturali ma nel caso di Sikhar lui è stato il prezzo che Bel, il consigliere di Zariel, ha pagato per ricevere un aiuto nel sovverchiare il nuovo padrone dell'Avernus e riprendere il posto."
+
+"Lui è l'aiuto che è stato promesso a Bel ma che la Paura vuole usare per uscire dalla suo prigionia in un semipiano della Coltre Oscura, avendo come obiettivo di prendere possesso del corpo di Sikhar appena sarà in grado di sopportare il potere della semidività"

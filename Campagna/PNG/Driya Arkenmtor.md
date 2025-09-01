@@ -1,0 +1,3 @@
+Matrona della famiglia Arkenmtor, è una drow anziana ma che ancora porta dei lineamenti dolci a ricordo di una bellezza che gli anni hanno fatto fatica a scalfire.
+Indossa un simil abito nuziale completamente nero con articolati disegni viola.
+Ingaggerà il gruppo per averli dalla sua parte, vuole evitare che [[Madrith Dalein]] porti a termine il rituale per potenziare Lolth utilizzando [[L'Artiglio di Tiamat]] convinta che se tale artefatto possa corrompere Lolth e liberare Tiamat si troverebbero ad indebolire la loro dea e se invece avesse successo la famiglia Dalein riceverebbe troppi onori e sarebbe impossibile per lei riuscire a diventare Matrona delle Matrone
